@@ -19,6 +19,6 @@ Cases?
 ![IMG20240127153059](https://github.com/SanteRaptor/TuuVeiTwo/assets/51802400/32f54016-82b0-4f4f-b577-a613158084c9)
 Who made those pretty drawings?
 - All Art on the boards was made by my dear friend ZANYFUNK
-![300182404-676ad629-1135-4972-8111-0c287f08abfe](https://github.com/SanteRaptor/TuuVeiTwo/assets/51802400/84d06d21-779b-4ee5-b2a1-dde484bfb652)
+![image](https://github.com/SanteRaptor/TuuVeiTwo/assets/51802400/fdfd4ed2-fdd4-4244-b895-f41d0a866232)
 
 
